@@ -1,4 +1,4 @@
-## Hello, I'm Sweta ✨
+## Hello, I'm Sweta ✨🦖
 
 🎓 Recently graduated from SNDT Women’s University <br>
 💻 Built responsive websites & apps <br>
